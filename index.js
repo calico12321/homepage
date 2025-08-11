@@ -1,7 +1,7 @@
 const { BlogGen } = require("blog-gen");
 
 const CONTENT_ROOT = __dirname;
-const DIST_ROOT = __dirname + "/dist";
+const DIST_ROOT = __dirname + "/docs";
 
 (async () => {
   const blogGen = await BlogGen.Construct({
