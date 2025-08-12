@@ -71,25 +71,25 @@ That made Cookie feel better. After that they went to the Dogan forest but they 
 
 Cookie and Biscuit both screamed.
 
-Cookie jumped on to the animal and scratched,bit and hissed.
+Cookie jumped on to the animal and scratched, bit and hissed.
 
-The animal threw Cookie of and growled. It was a Australian Shepard! It came closer and closer to Cookie and Biscuit.
+The animal threw Cookie off and growled. It was an Australian Shepard! It came closer and closer to Cookie and Biscuit.
 
-Pleas don't hurt us Biscuit said, my friend did not mean to hurt you.
+Please don't hurt us Biscuit said. My friend did not mean to hurt you.
 
-I did mean to hurt him Cookie said looking at the dog, i meant to do as much pain as i could.
+I did mean to hurt him Cookie said looking at the dog. I meant to do as much pain as i could.
 
-shhhh your not helping Cookie, whispered Biscuit
+Shhhh you're not helping Cookie, whispered Biscuit
 
-Grrrr how dare you come in dog territory growled the big dog.
+Grrrr how dare you come in dog territory, growled the big dog.
 
-I thought they where no dogs in the Dogan forest Biscuit said confused.
+I thought there where no dogs in the Dogan forest Biscuit said confused.
 
-Your right growled the Dog, I was the king of the dog's hunter. But one day i could not find any food so as punishment i had to stay in the Dogan forest for a week. But now that i found you two kitty's Lord Brown Ear will thank me and i will be his hunter again.
+You're right growled the Dog, I was the king of the dog's hunter. But one day, I could not find any food, so as punishment I had to stay in the Dogan forest for a week. But now that I found you two kitty's, Lord Brown Ear will thank me, and I will be his hunter again.
 
-We are not kitties hissed cookie.
+We are not kitties hissed Cookie.
 
-Just come here and i will take you to Death cage the dog prison the dog said still growling, follow me.
+Just come here and I will take you to Death Cage the dog prison, the dog said still growling, follow me.
 
 Cookie and Biscuit followed the huge dog out of the forest and to a huge black dog bigger than the Australian shepard.
 
@@ -97,7 +97,7 @@ Large Tail! I told you to come back after a week in the Dogan forest the huge do
 
 But Brown Ear i brought intruders for you!
 
-_yea_ of course you did. No cat would be dumb enough to go to the Dogan forest. Look after you spend a week in the forest you can be my hunter.
+_Yeah_ of course you did. No cat would be dumb enough to go to the Dogan forest. Look after you spend a week in the forest you can be my hunter.
 
 No its true look. The two cats came out of behind Large Tail's back.
 
@@ -113,7 +113,7 @@ Wait this is our cell? Cookie said when she and Biscuit went in the small cage.
 
 This is horrible Biscuit said. Im also hungry he said grumpily
 
-Well we can have those worm pills Cookie said looking at the cage, who knows what kind od. stuff these dogs have. And the cage looks even worse than the dogs!
+Well we can have those worm pills Cookie said looking at the cage, who knows what kind of stuff these dogs have. And the cage looks even worse than the dogs!
 
 Both Cookie and Biscuit took a pill. These taste disgusting Biscuit said.
 
@@ -164,3 +164,49 @@ Cookie and Biscuit where both exited to hear that and were running around.
 Shhhh Large Tail said, don't wake the dogs up!
 
 Ok said Cookie still exited, Whats the plan to escape?
+
+So in the morning i say that you two are making weapons to destroy the dog army. After Brown Ear opens the cage i will distract him so you can escape. When you two run in to the Dogan forest i will push Brown Ear in the cage and run away as fast as i can.
+
+Great Cookie said and we brought catnip so me and Biscuit can run even more fast.
+
+Ok guys yawned Biscuit but first we need some sleep.
+
+I guess he is right said cookie also feeling sleepy. Good night Biscuit and Large Tail.
+
+Well you guys can sleep but i will stay awake tonigh- ZZZZZZZ
+
+Right in the morning Everybody woke up, Alright are you ready guys? Large Tail asked.
+
+Yep Cookie and Biscuit said at the same time.
+
+Ok im going to Brown Ear.
+
+Large tail walked up to Brown Ear who was still a little bit sleeping.
+
+I think our prisoners are making a weapon to destroy the dog army my Lord
+
+Yea and they are probably going to make it out of dirt or something. I need to see this Brown Ear said laughing.
+
+A few minuit's later they came to the death cage. Hello i heard you are making a weapon to destroy our army Brown Ear said wondering where it is.
+
+Hey Brown Ear look over there another cat!Large tail said trying to distract him as good as he could.
+
+Wait where? while Brown Ear was looking Biscuit and Cookie took a big sniff of catnip then ran as fast as they could.
+
+Hey get back here Brown Ear said seeing them run away.
+
+Before Brown Ear could chase them he was pushed in the death cage by Large Tail.
+
+I will Get you cats and dog i will!!!
+
+After they both made it to the Dogan forest Cookie and Biscuit and Cookie thanked Large Tail for helping them get out.
+
+Hey Cookie said maybe you can come with us to find my family. And if you tell White Eye the Leader of the cats everything about the dogs he will be happy you are honest and you can live with him too!
+
+Um ok Large Tail said
+
+Hold on Biscuit said worried, Theres that thing Carmel Leaf was talking about.
+
+Wait that huge huge thing Cookie said also scared. Its getting closer
+
+## Chapter 6
