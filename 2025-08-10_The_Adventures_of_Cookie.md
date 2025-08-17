@@ -107,25 +107,25 @@ Well look what we have here two cats walking in dog lands. Guards send them to t
 
 Two long dalmatians lead the two cats to a small metal cage filed with dirt and mud.
 
-Get in here one dalmatian growled.
+Get in here, one dalmatian growled.
 
 Wait this is our cell? Cookie said when she and Biscuit went in the small cage.
 
-This is horrible Biscuit said. Im also hungry he said grumpily
+This is horrible, Biscuit said. Im also hungry, he said grumpily.
 
-Well we can have those worm pills Cookie said looking at the cage, who knows what kind of stuff these dogs have. And the cage looks even worse than the dogs!
+Well we can have those worm pills, Cookie said looking at the cage, who knows what kind of stuff these dogs have. And the cage looks even worse than the dogs!
 
-Both Cookie and Biscuit took a pill. These taste disgusting Biscuit said.
+Both Cookie and Biscuit took a pill. These taste disgusting, Biscuit said.
 
-Yea Cookie said. We should also clean ourselves at least that does not taste disgusting.
+Yea, Cookie said. We should also clean ourselves at least that does not taste disgusting.
 
 After about 7 Minuit's of cleaning them selfs Cookie noticed that Large Tail was guarding the cage.
 
-Hey Large Tail! Cookie said in a friendly voice, help us get out of here.
+"Hey Large Tail! Cookie, said in a friendly voice, help us get out of here.
 
-Hahahaha _yea_ and get me sent to the Dogan forest for a year Large tail said.
+Hahahaha _yea_ and get me sent to the Dogan forest for a year, Large tail said.
 
-But pleas Large Tail we want to find my mom cookie said purring next to large Tail.
+"But pleas Large Tail we want to find my mom cookie, said purring next to large Tail.
 
 Look Australian shepard's are smart dogs and im not going to let you two cats escape.
 
@@ -133,25 +133,25 @@ Large Tail!!! the big brown dog was calling, Sorry kitties I need to do importan
 
 A few minuit's later Large Tail came to Brown ear. Yes Lord Brown Ear what do you need.
 
-Oh nothing i just wanted to say that at eight in the morning your going to go back Brown Ear said.
+Oh nothing i just wanted to say that at eight in the morning your going to go back, Brown Ear said.
 
 Go where? Large Tail said confused.
 
 Back to the forest of course!
 
-What! Large Tail said mad, But i brought you prisoners!
+What!" Large Tail said mad, But i brought you prisoners!
 
 Exactly! which is why you i reduced your punishment to 6 days not 7! Brown ear said haply.
 
-No im not doing that! Large Tail said furious
+No im not doing that!, Large Tail said furious
 
 Brown Ear's smile went to a frown, ok if you don't want to go in the forest go in the death cage!
 
-Sorry my Lord i should have never done that Large Tail said still a little mad but holding it in.
+Sorry my Lord i should have never done that, Large Tail said still a little mad but holding it in.
 
-Good now get some sleep Brown Ear said calming down.
+Good now get some sleep Brown Ear, said calming down.
 
-After that Large Tail went to the two cats in the death cage. Wake up he said
+After that Large Tail went to the two cats in the death cage. Wake up, he said
 
 Why? Biscuit said a little mad he was woken up.
 
@@ -159,13 +159,13 @@ We are going to get out of this place Large Tail said proudly
 
 ## Chapter 5
 
-Cookie and Biscuit where both exited to hear that and were running around.
+Cookie and Biscuit where both excited to hear that and were running around.
 
 Shhhh Large Tail said, don't wake the dogs up!
 
-Ok said Cookie still exited, Whats the plan to escape?
+Ok, said Cookie still excited. Whats the plan to escape?
 
-So in the morning i say that you two are making weapons to destroy the dog army. After Brown Ear opens the cage i will distract him so you can escape. When you two run in to the Dogan forest i will push Brown Ear in the cage and run away as fast as i can.
+So, in the morning, I say that you two are making weapons to destroy the dog army. After, Brown Ear opens the cage, I will distract him so you can escape. When you two run in to the Dogan forest, I will push Brown Ear in the cage and run away as fast as I can.
 
 Great Cookie said and we brought catnip so me and Biscuit can run even more fast.
 
@@ -210,3 +210,79 @@ Hold on Biscuit said worried, Theres that thing Carmel Leaf was talking about.
 Wait that huge huge thing Cookie said also scared. Its getting closer
 
 ## Chapter 6
+
+Hold on Large tail said staring at the huge animal approaching them, wait its red and orange but it has teeth.
+
+Oh maybe it another cat Biscuit said trying not to be scared.
+
+When i got about 8 meters away from them the animal ran as fast as is it could.
+
+Its a fox!!!! Large Tail screamed, you two run away run away i will try to kill it!
+
+Biscuit and Cookie ran as fast as they could going through bushes and plants, eventually Cookie and Biscuit went up a tree and watched Large tail fight the fox bellow.
+
+Large Tail was growling and biting at the fox but it was to strong. Large Tail was struggling to keep fighting the fox.
+
+We need to help him Biscuit! Cookie said worried.
+
+Are you sure Cookie? That fox looks pretty dangerous!
+
+We have to help Biscuit he saved us we need to save him now!
+
+OK fine Biscuit said.
+
+the two cats came from behind and grabbed on either side of the fox"s legs.
+
+Ow!!! said the fox with great pain, get of me now!
+
+Before he was done talking to the cats Large Tail jumped and bit him in the face very hard.
+
+A few seconds later the bite must have been to hard for the fox because the fox soon fell on the ground and was dead.
+
+Thanks for that Large tail said with scars on his face.
+
+Well you did save us so now we saved you Cookie said licking dirt she got from the fox.
+
+Hey do you know what this means? We finally have good food! Biscuit said so happy he could actually eat something that was not medicine.
+
+The cats and dog feasted and ate the fox as fast as they ran away from the dog territory.
+
+Well lets go to sleep now Large Tail said sleepily, and Cookie i think i might know here your parents are but i will tell you that in the morning ok?
+
+Cookie was so exited that she could not sleep that night and only think about her Family.
+
+In the middle of the night Cookie woke Large tail.
+
+Lets go and find my Family Cookie said excitedly.
+
+Wake me up in the morning Cookie. Large Tail yawned
+
+But it is morning Cookie said, the middle of the night is morning.
+
+Uhg just wake me up at twelve or ten or something.
+
+Ok cookie said, well its twelve right now.
+
+Twelve in the Morning! Large Tail said annoyed.
+
+It is the morning! Cookie said.
+
+Ok if i tell you where your parents might be will you let me sleep? Large Tail said trying to sleep.
+
+Yes yes ye!!!!! Cookie said so exited you would think she just had a big sniff of catnip.
+
+Ok when i worked for Brown Ear we found out a group of tuxedo cats and there parents where living in out territory so Brown Ear sent a Huge dog to chase them away.
+
+Thats what the dog was! Cookie interrupted.
+
+Anyways all of the cts in the Family well except you ran off to a different land way past Gabrovo. The cats ran and ran for months until they came to Ramenia no thats not it Rockmenia Oh! Romania! That was it anyways they now have a ne home there.
+
+Ok Cookie said but how do we get there?
+
+Oh i was thinking taking a helicopter Large Tail said
+
+What!!! i cant believe it i cant wait for tomorrow or actually today because its morning. Cookie said now a tiny bit tired.
+
+Ok said Large Tail well lets get back to slee- ZZZZZZZZZ
+
+## Chapter 7
