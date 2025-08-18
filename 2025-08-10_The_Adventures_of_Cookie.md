@@ -55,7 +55,7 @@ Well, we have to give him our emergency food, but I guess it's worth it Cookie s
 
 A few minuets later they came back with there food and paid.
 
-"Alright," said Cookie. Lets go!
+Alright, said Cookie. Lets go!
 
 Wait, said Carmel Leaf. Are you going to the Dogan forest?
 
@@ -269,7 +269,7 @@ It is the morning! Cookie said.
 
 Ok if i tell you where your parents might be will you let me sleep? Large Tail said trying to sleep.
 
-Yes yes ye!!!!! Cookie said so exited you would think she just had a big sniff of catnip.
+Yes yes yes!!!!! Cookie said so exited you would think she just had a big sniff of catnip.
 
 Ok when i worked for Brown Ear we found out a group of tuxedo cats and there parents where living in out territory so Brown Ear sent a Huge dog to chase them away.
 
@@ -286,3 +286,73 @@ What!!! i cant believe it i cant wait for tomorrow or actually today because its
 Ok said Large Tail well lets get back to slee- ZZZZZZZZZ
 
 ## Chapter 7
+
+In the morning Cookie and Large Tail woke up at the same time they tried to wake Biscuit up but as usual Biscuit just wanted to sleep.
+
+Pleas let me sleep for longer, Biscuit said lazily.
+
+Does he always do this? Large Tail said.
+
+Yep Biscuit is pretty lazy. Cookie said cleaning herself.
+
+Well look at this Large Tail said excitedly, Large Tail barked as loud as he could and everyone in the forest could here it.
+
+Biscuit woke up and hissed a lot at Large Tail, Why did you do that Biscuit said vert angry.
+
+Well we have to get going if we want to cath the Helicopter.
+
+What is a helicopter? Biscuit asked.
+
+Oh its like this big metal bird humans fly. Cookie said ready to go.
+
+Oh those things Biscuit said now knowing what a helicopter is, well how do we get on one of those things and none of us know how to control one of those things.
+
+True said Large Tail, but i know how we will get on it.
+
+How? Cookie and Biscuit asked surprised.
+
+Well you know that American show called worlds cutest animals? Asked Large Tail.
+
+Yea Biscuit said, I love it i usually watch it at those tv sores here.
+
+Well if we keep going through the Dogan forest and i bark like that we will get there attention because they almost always look in there for animals and when they find us and put us in the helicopter to America we break out of the bags they put us in then steer the helicopter to Romania Large tail said.
+
+But we don't know how do fly a helicopter Biscuit said.
+
+Yes thats true but i know how to get to Romania it borders our land by a river so we just have to find a river when flying the helicopter.
+
+Yea said Biscuit wanting to go back to sleep, so according to you there i only one river in the world.
+
+No the river will look dirent and there will be a sign Large Tail said.
+
+Well how do we see the s- before Biscuit could finish his sentence he saw 2 humans with 3 big bags with air holes.
+
+Look Large Tail said its the humans just pretend you want to go in the bag ok.
+
+Got it Cookie said willing to do anything to see her Family.
+
+about 30 minuit's later they were in the helicopter high in the sky.
+
+Ok large Tail said, when i say GO we all jump out of these bags and attack the humans. Ok?
+
+yep Cookie and Biscuit said.
+
+Ok then large Tail said, 3...2...1... GO!!!
+
+The two cats and one dog jumped and destroyed the bag Biscuit attacked the first human who was flying the Helicopter Biscuit and Cookie where biting the second human.
+
+Eventually they knocked the humans on the ground and could here them screaming.
+
+Cookie shouted i will steer it to Romania you two keep the humans on the ground!
+
+When Cookie had control of the helicopter she could not steer it she did not know what any of it meat so she asked Large tail what to do.
+
+Large Tail who was still trying to keep the human on the ground told Cookie to try to move the stick on it.
+
+When Cookie did it she moved the helicopter to the right then left then somehow turned it upside down. After a few hours the Helicopter was going in random directions and now it was going down.
+
+Look Cookie said! its the river and the sign we are in Romania.
+
+Good said Large Tail but we are going to crash in to the river!
+
+## Chapter 8
