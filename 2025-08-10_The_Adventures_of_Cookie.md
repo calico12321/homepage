@@ -5,6 +5,8 @@ tags: [cats]
 
 ## Chapter 1
 
+The Adventures of Cookie by Alder Breczinski
+
 There once was a stray tuxedo cat in Gabrovo, Bulgaria. The cat's name was Cookie and her life was hard. She scavenged for food and water that was either dirty or had bugs in it.
 
 But one day when she was sharing a piece of rotten mouse with her best friend Biscuit, who was an orange tom, Cookie said do you ever wonder where our parents are? Biscuit said no, I lost my mom when I saw a crow outside and when I came back my mom and siblings where gone. Oh said cookie. Well, I don't know how I lost my parents, but if I find them I can have a better life and I will have brothers and sisters. Doesn't that sound great to you?
@@ -323,7 +325,7 @@ Yes thats true but i know how to get to Romania it borders our land by a river s
 
 Yea said Biscuit wanting to go back to sleep, so according to you there i only one river in the world.
 
-No the river will look dirent and there will be a sign Large Tail said.
+No the river will look different and there will be a sign Large Tail said.
 
 Well how do we see the s- before Biscuit could finish his sentence he saw 2 humans with 3 big bags with air holes.
 
@@ -356,3 +358,79 @@ Look Cookie said! its the river and the sign we are in Romania.
 Good said Large Tail but we are going to crash in to the river!
 
 ## Chapter 8
+
+SPLASH!!! The humans cats and dog landed in the river and were being pulled away.
+
+Quick! Large Tail screamed, we can float in that piece of wood!
+
+Biscuit landed right next to Large Tail so he swam easily to the piece of wood there.
+
+The humans swam easily to the helicopter that was sinking.
+
+Cookie was to far away from anything to swim there Cookie was calling for help screaming yelling but nobody could help her she was to far away. Cookie was drowning in the water she tried to get back up but she could not.
+
+Eventually she got too tired and could not breath she closed her eyes and when she opened them again she could breath perfectly she was floating back up to the surface and when she was out of the water she saw Biscuit and Large Tail now in Romania, wondering where Cookie was.
+
+Cookie screamed Im here guys look!
+
+but they did not hear her or seem to see her when Cookie was in the clouds she was sucked three times the speed of sound to the sun.
+
+Cookie knew she could not breath in space but just like in the water she could breath fine.
+
+When Cookie finally reached the sun and was not felling even a tiny burn, she was sucked in the sun.
+
+Cookie saw a huge black cat bigger than a house.
+
+Cookie also saw cats playing, getting clean yummy food, sleeping and having a good time.
+
+Where am? i Cookie asked confused to the huge black cat.
+
+I am Huge Fur the god of the white star.
+
+What is the white star? Cookie asked even more confused.
+
+The white star is the place cats go after they die. It is meant to be relaxing and a paradise for cats Huge fur said.
+
+But i cant be dead i need to find my parents now! Cookie said.
+
+Im sorry little one but here you can relax, play, and get the best food!
+
+Cookie went away and sat still eating a delicious crow but still feeling sad.
+
+A few minuit's later a calico about Cookie's size came to her.
+
+Whats the mater? the calico asked.
+
+Cookie explained everything to her.
+
+Oh said the calico well you can get back down to earth if you want.
+
+How! Cookie asked excitedly.
+
+Well if you only died one time then that means you still have 8 more lives and you can go back to earth the calico said.
+
+Really? thank you so much you should come with us to find my parents! maybe White Eye will even let you live with him too!
+
+Well i would love that the calico said, but i used all of my lives and no one wants to give me there life.
+
+Well you can have one of my life's Cookie said happily.
+
+You would do that thank you so much! whats your name? The calico asked.
+
+My name is Cookie how about you?
+
+my name is Pebbles.
+
+Oh thats a nice name Cookie said anyways lets go back to earth!
+
+The two cats went to Huge Fur and explained everything.
+
+Very well Huge Fur said then sent the 2 cats to Romania where the cat and dog where waiting.
+
+Cookie! Biscuit and Large Tail said, i thought you where dead Biscuit said.
+
+And who is thi? Large Tail said pointing to Pebbles
+
+So Cookie explained everything and when she was done talking she saw some tuxedo cats she went a little closer she noticed it was her parents.
+
+## Chapter 9
