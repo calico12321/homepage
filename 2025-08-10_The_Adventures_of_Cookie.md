@@ -434,3 +434,49 @@ And who is thi? Large Tail said pointing to Pebbles
 So Cookie explained everything and when she was done talking she saw some tuxedo cats she went a little closer she noticed it was her parents.
 
 ## Chapter 9
+
+Cookie and the rest ran to the calico cats as fast as they could.
+
+Cookie hugged all of them and said, im so happy to see you!!!
+
+Cookie we have missed! you one of the small tuxedos said.
+
+Cookie told her family abut her adventures and how they met Pebbles and Large Tail and Biscuit.
+
+That sounds wonderful Cookies mom said, but your older brother Odepo is unfortunately adopted by a human.
+
+I had people adopt me too! Pebbles said.
+
+But these people are much worse Cookies mom said. They don't let him go outside they don't give him any fresh food or freedom.
+
+Well we will free Odepo! Cookie said strongly.
+
+Im not so sure thats a good idea Cookie's mom said, those humans have security cameras so they can cath us!
+
+Well why don't we do it at night Pebbles said, I always snuck out at night and went to the little river to get fish.
+
+But this is harder than getting fish one of The tuxedo cats said.
+
+Still we have to try Cookie said! Ok heres the plan. Large Tail will create a distraction by barking loudly. Biscuit and me will go through the back window and Pebbles will jump on the cameras ans try to destroy each of them one by one. My and Biscuit will find Odepo and bring him back!
+
+And what do we do? the tuxedo cats asked.
+
+If the humans notice us then all of you bight them as hard as you can ok!!! Cookie said.
+
+Ok the tuxedo cats said.
+
+3..2..1... lets go! Hold on Cookie said, where is the house?
+
+Over there a older tuxedo cat pointed to a old building that had holes in it.
+
+Oh Biscuit said looking scared. Maybe we just go home now i mean its only one tuxedo cat and-
+
+Before he could finnish his sentence all the tuxedo cats and one dog where heading towards the weird house.
+
+A few minuit's later the mission began and Large Tail was barking as loud as he could. eventually somebody came they threw a piece of bacon, and Large Tail could not resist bacon so he came running to the piece of bacon and after the human went away.
+
+Pebbles was doing her best to destroy the cameras but it was very hard.
+
+Cookie and Biscuit came from the back window but when they came in they saw something terrible it was Brown Ear.
+
+## Chapter 10
