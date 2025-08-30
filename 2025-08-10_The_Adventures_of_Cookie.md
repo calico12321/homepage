@@ -129,7 +129,7 @@ Hahahaha _yea_ and get me sent to the Dogan forest for a year, Large tail said.
 
 "But pleas Large Tail we want to find my mom cookie, said purring next to large Tail.
 
-Look Australian shepard's are smart dogs and im not going to let you two cats escape.
+Look Australian shepard's are smart dogs and im not going to let you two cats escape.mm
 
 Large Tail!!! the big brown dog was calling, Sorry kitties I need to do important business. Get some rest its late.
 
@@ -435,7 +435,7 @@ So Cookie explained everything and when she was done talking she saw some tuxedo
 
 ## Chapter 9
 
-Cookie and the rest ran to the calico cats as fast as they could.
+Cookie and the rest ran to the tuxedo cats as fast as they could.
 
 Cookie hugged all of them and said, im so happy to see you!!!
 
@@ -480,3 +480,45 @@ Pebbles was doing her best to destroy the cameras but it was very hard.
 Cookie and Biscuit came from the back window but when they came in they saw something terrible it was Brown Ear.
 
 ## Chapter 10
+
+Brown Ear how did you get in Romania? Cookie and Biscuit said.
+
+Well it was pretty easy i was hiding in the bushes when you got on the helicopter and i was on the back of the helicopter when you where flying. Now i have accepted these simple humans as my pets. Sometimes they even think that im there pet. Crazy right?
+
+Well can you pleas go away Biscuit said, We are trying to get Cookies brother Odepo.
+
+Oh him Large Ear said, i know here he is over there, Large Ear pointed to a small tuxedo kitten on the chair next to them.
+
+Odepo! Cookie said going to jump on the chair to see him.
+
+Large Tail stopped Cookie from jumping on the chair, first i need my hunter back, Large Ear said.
+
+Well Large Tail is outside and he scared the human probably by now! Biscuit said ready to fight.
+
+Oh yea well if he scared the human away why is the human carrying him.
+
+they saw the large human that threw the bacon pick up Large Tail and he was also carrying pebbles, the human threw both animals on the ground.
+
+Give me my hunter and i wont hurt any of you Brown Ear said.
+
+guys get ready to attack Cookie said.
+
+Alright Brown Ear said, im giving you one last chance give me my hunter now!
+
+I guess were going to fight him Cookie said. 3..2..1.. go!
+
+Brown Ear jumped on Cookie but Biscuit and the rest jumped on his back.
+
+Brown Ear threw all of them off except Cookie which scratched his face as hard as she could.
+
+The fight went on for hours but Brown Ear figured out that he was only losing because of Large Tail so he got a idea.
+
+Hey theres still some bacon in the bushes Brown Ear said pointing too the bushes outside the house.
+
+Large Tail stopped with fighting and ran as fast as he could outside.
+
+I cant believe he would do that Cookie said sad and mad.
+
+Brown Ear was coming closer to them and they noticed that pebbles was gone.
+
+But they could not worry about that because his teeth where open.
