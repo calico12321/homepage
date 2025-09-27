@@ -483,7 +483,7 @@ Cookie and Biscuit came from the back window but when they came in they saw some
 
 Brown Ear how did you get in Romania? Cookie and Biscuit said.
 
-Well it was pretty easy i was hiding in the bushes when you got on the helicopter and i was on the back of the helicopter when you where flying. Now i have accepted these simple humans as my pets. Sometimes they even think that im there pet. Crazy right?
+Well it was pretty easy i was hiding in the bushes when you got on the helicopter and i was on the back of the helicopter when you were flying. Now i have accepted these simple humans as my pets. Sometimes they even think that im there pet. Crazy right?
 
 Well can you pleas go away Biscuit said, We are trying to get Cookies brother Odepo.
 
@@ -519,8 +519,63 @@ Large Tail stopped with fighting and ran as fast as he could outside.
 
 I cant believe he would do that Cookie said sad and mad.
 
-Brown Ear was coming closer to them and they noticed that pebbles was gone.
+Brown Ear was coming closer to them and they noticed that pebbles and Odepo were gone.
 
 But they could not worry about that because his teeth where open.
 
-test
+BANG! a loud sound of a broken window was behind the animals.
+
+it was Large tail he jumped out of the window then bit Brown ear on his tail as hard as he could.
+
+OOOOOOW!!!!!, brown ear screamed soon after running out of the broken window.
+
+But right after Brown Ear went out of the window he was being scratched by Cookies family.
+
+The kittens and there mom and dad where hissing biting and scratching.
+
+Brown ear ran as fast as he could away from the home.
+
+I forgot about them! Cookie said as she was calming down from her big fight.
+
+Large Ear said with a smile did you really think i would just leave the team like that?
+
+Uh kind of Cookie's mom said as her and her family went through the broken window.
+
+just as Large tail was about to say something the animals heard another BANG but this time from upstairs.
+
+as they went upstairs they saw Pebbles and Odepo running down the stairs with a human running after them.
+
+RUN!!! Odepo and Pebbles both said when passing the cats and one dog.
+
+All the animals ran as fast as they could out of the broken window and under a tree.
+
+Odepo! Cookie's family said, we havent seen you in a long time.
+
+And Pebbles Cookie said, where were you?
+
+I will explain everything Pebbles said.
+
+So while you guys where fighting i snuck upstairs to try and look for Odepo and i found him napping on a chair.
+
+Hey! Odepo interrupted i was just closing my eyes and thinking.
+
+Ok whatever Pebbles sid continuing her story, anyways i woke him up and he said he was was happy to se somebody trying to get him out.
+
+But he was making to much noise so a human came and looked really mad but before re started running i crashed into a cabinet and a passport fell out so i but i in my mouth and ran.
+
+When pebbles was done with the story she shoved a passport that was under her paw and showed it to the animals.
+
+Wow Cookie said thats impressive.
+
+Cookie explained to her family about her adventures and they where going to go to white eye for a better life.
+
+It sounds like you had a lot of adventures Cookie's dad said but how are we going to go back to bulgaria? he said.
+
+Well theres a airport close to  to here lets go there and see what we can do Large Tail said, oh and don't forget to bring that passport Pebbles it might come in handy.
+
+a few minuit's later the cats arrived at the airport and they saw a sign that said: paradise Airlines 104 leaving to go to Gabrov,Bulgaria
+ airport.
+
+I think we know which plane to take Cookie said
+
+## Chapter 11
